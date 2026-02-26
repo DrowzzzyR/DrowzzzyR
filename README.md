@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 About Me:<br>I’m a 21-year-old product analyst at T-Bank 💼, currently studying at Moscow Polytechnic University 🎓.<br><br>🔭 Working on improving banking products and analyzing data to drive decisions.<br><br>🌱 Constantly learning and improving my skills in data analysis, product management, and tech.<br><br>⚡ In my free time, I explore new tools for analytics, read about tech trends, and enjoy solving real-world problems.<br><br>🚀 Passionate about turning data into actionable insights! 📊✨<br><br>
+👨‍💻 About Me:<br>I’m a 22-year-old product analyst at T-Bank 💼, currently studying at Moscow Polytechnic University 🎓.<br><br>🔭 Working on improving banking products and analyzing data to drive decisions.<br><br>🌱 Constantly learning and improving my skills in data analysis, product management, and tech.<br><br>⚡ In my free time, I explore new tools for analytics, read about tech trends, and enjoy solving real-world problems.<br><br>🚀 Passionate about turning data into actionable insights! 📊✨<br><br>
 
 
 ## 🌐 Socials:
